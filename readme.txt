@@ -1,0 +1,1 @@
+hmesha apne dil ki sunkr dimag se km lo
